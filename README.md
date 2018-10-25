@@ -2,13 +2,12 @@
 
 <h1>Steroids-for-sale</h1>
 
+We&#8217;ve moved! Click <a href="https://affiliate.anabolics.com/idevaffiliate.php?id=73" target="_blank" rel="no follow noopener"><span style="color: #ff9900;"><b>HERE</b></span></a></strong> to be re-directed to our new and improved online anabolics store.</p>
+
 ✔ Injectable ands Orals
 ✔ 100% Secure Payments
 ✔ 100% Discreet Shipping
 ✔ Trusted by 20,000 US Customers
-
-
-We&#8217;ve moved! Click <a href="https://affiliate.anabolics.com/idevaffiliate.php?id=73" target="_blank" rel="no follow noopener"><span style="color: #ff9900;"><b>HERE</b></span></a></strong> to be re-directed to our new and improved online anabolics store.</p>
 
 ![alt text](https://i.imgur.com/eCFNhDk.jpg)
 <h2>Where can you find steroids for sale online?</h2>
